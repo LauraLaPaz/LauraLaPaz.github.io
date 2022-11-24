@@ -1,2 +1,2 @@
-# lapazlauracodo2022.github.io
+# LauraLaPaz.github.io
 Github-Page
